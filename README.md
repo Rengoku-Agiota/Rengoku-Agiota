@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Rengoku-Agiota
+- 👀 I’m interested in learn to program (even if you don't know anything)
+- 🌱 I’m currently learning Trying to learn some Python
+- 📫 How to reach me Why do you want to know this?
+- 😄 Pronouns: Rengoku 😃👍
+- ⚡ Fun fact: I'm very stupid
